@@ -11,7 +11,7 @@ Sou proativo, curioso e comprometido, sempre buscando aprender novas ferramentas
 Busco uma oportunidade de estágio que me permita crescer profissionalmente, colaborar com desafios reais e aprofundar minha experiência na área de tecnologia, agregando entusiasmo, dedicação e vontade de fazer a diferença à organização.
 
 📫 Contato:
-(alantecologia2026@gmail.com ou linkedin.com/in/alan-silva-gmail-com telefone
+(alantecologia2026@gmail.com ou linkedin.com/in/alan-silva-gmail-com telefone/
 41999507127)
 <!---
 Alancosta1988/Alancosta1988 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
